@@ -1,2 +1,14 @@
-# 1vin-az
-1vin-az
+1İdman mərclərini qazanın
+1Win bukmeker https://1vin-az.com/ kontoru 2016-cı ildən idman mərclərini qəbul edir və mərc fəaliyyətini həyata keçirmək üçün Kurasao adasının Oyun Komissiyası tərəfindən lisenziyaya malikdir. Rəsmi 1Win veb-saytı yalnız rusdilli müştərilərdən deyil, həm də dünyanın hər yerindən olan istifadəçilərdən idman mərclərini qəbul edir. Brendin Federal Vergi Xidmətindən icazəsi olmadığı üçün bukmeker kontoru ofşorda fəaliyyət göstərir ki, bu da onun Rusiyada mövcudluğuna təsir edir. Siyahısı daim yenilənən bir çox güzgü, rus istifadəçilərinin məhdudiyyətləri görməməsi üçün blokdan keçməyə imkan verir.
+
+BC 1Win sürətlə populyarlıq qazanır, mütəxəssislər bunu saytın bir çox üstünlükləri ilə əlaqələndirirlər. Sayt qlobal və yerli idman hadisələri və e-idman üçün əmsalları sadalayan çoxsaylı mərc mövqeləri təklif edir. Başlayanlar ilk 4 əmanət üçün səxavətli ilkin bonusdan daha çox faydalanırlar və mobil tətbiqetmənin olması platformanı ictimaiyyət üçün əlçatan edir. Brend mediada geniş təmsil olunduğundan və bir neçə tanınmış layihələrin tərəfdaşı olduğundan, 1Win bukmeker kontorunda idman mərcləri istifadəçilər tərəfindən çox tələb olunur.
+
+1Win idman mərcləri: hadisə seçimi
+Rəsmi 1Win səhifəsində istifadəçilər populyar idman növləri (futbol, ​​MMA, xokkey) və ekzotik idman növləri (kabbadi, dart, Pesapallo) daxil olmaqla canlı və onlayn bölmələrdə idman mərclərini tapacaqlar. Elektron idman sahəsində CS, Dota2, Overwatch və başqaları təmsil olunur. İstifadəçilər bir neçə saniyə ərzində çempionluq və ya komanda adı ilə istədiyiniz hadisəni tapacaq müasir axtarış sisteminə daxil ola bilərlər.
+
+İstənilən idman matçı üçün bir neçə əmsal variantı təklif olunur ki, bu da tədbirin populyarlıq dərəcəsindən birbaşa asılıdır. TOP 5 reytinq siyahısına daxil olmayan milli liqa hadisələri üçün 16-17 variantları. Əsas uyğunluq növləri artıq 65 ilə 80 arasında seçim təklif edir. Bukmeker kontorunun marjası 5-12% təşkil edir, bu göstəriciyə istifadəçilərin idman tədbirinə marağı təsir edir. Yalnız səlahiyyətli ziyarətçilər 1Win bukmeker kontorunda idmana mərc edə, yayımlara baxa və rəyləri öyrənə bilərlər.
+
+1Win idman mərclərində yerləşdirmə
+İstifadəçi üçün əsas şərt, bundan sonra o, mərc edə biləcək, qeydiyyatdan keçməkdir. Portalın əsas səhifəsində əsas məlumatlar var - canlı və onlayn olmaqla iki kateqoriyaya bölünən idman tədbirləri. Canlı xəbərləri, xətti göstərir - qarşıdan gələn oyunların siyahısını, uzunmüddətli mərc seçimlərini təqdim edir. Esports ayrı bir kateqoriya olaraq ortaya çıxır.
+
+Oyunçu uyğun hadisə tapdıqdan sonra ondan bir ehtimal seçmək istənəcək. Kupon cari qiymətləri göstərir (sadə, ekspress). Minimum beta dəyəri 10 rubl təşkil edir. Bundan sonra, mərcçi bütün hissə-hissələri yoxlayır və həll olunmamış hadisələrin siyahısına əlavə olunacaq mərci təsdiqləyir.
